@@ -10,7 +10,7 @@ Round-3 rebuild for [@mosul](https://make.fun/u/mosul). Round 2 placed #133 of 2
 
 > After three years my chair finally got fixed, which makes it the fastest promotion anyone here has had.
 
-111 characters, one line, about office life.
+103 characters, one line, about office life.
 
 ## How it works
 
